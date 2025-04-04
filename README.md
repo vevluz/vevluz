@@ -1,4 +1,4 @@
-all my friends documented alphabetically like historical events because they're basically the reason i'm alive
+all my friends documented alphabetically like historical events because they're all you need to know about me
 
 
 a is for addsie <3, azaela, audrina, andrea, andjela, angela, antwan
